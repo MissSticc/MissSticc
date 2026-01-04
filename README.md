@@ -1,5 +1,7 @@
 ![typewriter (2)](https://github.com/user-attachments/assets/cdd36af9-645e-47af-bfb7-58f5200aa925)
 
+<img align="right" src="https://github.com/user-attachments/assets/d9321a80-c57a-4dc5-90ed-62fbcce81102" width="200" height="350">
+
 $\texttt{\color{#7565b6}Hello hello! Welcome in!}$
 
 $\texttt{\color{#7565b6}You may call me Azul or Mystic! Either or is fine with me 🫧}$
