@@ -1,5 +1,4 @@
-![typewriter (2)](https://github.com/user-attachments/assets/57c1b4fb-2d73-4bd0-8062-8551aa02698d)
-<img align="right" src="https://github.com/user-attachments/assets/b1f4a5e8-f90d-4afc-96ca-3e3b130b1a25" width="200" height="350">
+![typewriter (2)](https://github.com/user-attachments/assets/cdd36af9-645e-47af-bfb7-58f5200aa925)
 
 $\texttt{\color{#7565b6}Hello hello! Welcome in!}$
 
