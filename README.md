@@ -8,7 +8,7 @@ $\texttt{\color{#7565b6}You may call me Azul or Mystic! Either or is fine with m
 
 $\texttt{\color{#7565b6}Any pronouns! I have no preference 🫧}$
 
-$\texttt{\color{#7565b6}C+H are always welcomed! Though if I am already with someone please ask just in case 🫧}$                                                                       
+$\texttt{\color{#7565b6}C+H is always welcomed! Though if I am already with someone please ask just in case 🫧}$                                                                       
 
 $\texttt{\color{#7565b6}Feel free to check out my strawpage for more info! 🫧}$
 
