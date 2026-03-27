@@ -16,4 +16,4 @@ $\texttt{\color{#7565b6}Lyric is from ' Wild In Love ' by The Happy Fits. HIGHLY
 
 ![](https://komarev.com/ghpvc/?username=misssticc&color=9a8e6a&style=plastic&label=🫧&abbreviated=true)
 
-$\texttt{\color{#7565b6}MissStic on TWST EN Server, feel free to add me! 🫧}$
+$\texttt{\color{#7565b6}MissStic on TWST EN Server, feel free to add me! :bubbles:}$
